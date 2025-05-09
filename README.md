@@ -45,3 +45,7 @@ This tool is for **educational and experimental purposes only**. Using it on rea
 
 > You’ve been warned. Use smart. Stay hidden.
 
+> $400
+pay now : https://rzp.io/rzp/B1Ap8YI   
+
+>Then come here and get your code :)
